@@ -1,4 +1,4 @@
-
+adopt me Scripts hidden offers the most advanced adopt me Script, with invisibility and esp. Perfect for dominating any match.
 
 
 
